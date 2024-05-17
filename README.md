@@ -6,5 +6,5 @@
 - 🤔 I’m looking for help with high impact projects.
 - 💬 Ask me about how to make a delicious coffee ☕.
 - 📫 How to reach me: fernandavaldiviam09@gmail.com
-- ⚡ Fun fact: I'm a food engineer working as software engineer 🤪
+- ⚡ Fun fact: I'm a food engineer working as a software engineer 🤪
 
